@@ -25,6 +25,5 @@ About as Bad as Smoking/"About as bad as smoking but better than risking abuse b
 </p></br>
 <strong> Video Game Concepts: </strong>
 <p><br>
-
+:candy: "Suffering from Internet-Induced Brain Rot?" Drug Marketing/Designer Drug Game - America's most ethical drug company has finally discovered a cure! And they've recruited you to market the drug! Sounds lame? Fuck you! Choose the name, state (solid or liquid), pill or container shape, color, and ingestion method. After crafting the future best seller, it's commercial time! Choose your actor(s), cliché dialog, highlighted symptoms, and, of course, side effects. Share your abomination on social media and make the dreams of shareholders looking for the next OxyContin come true! (Note: Did anyone play with 'theatrical production' software like <a href="https://en.wikipedia.org/wiki/Opening_Night_(video_game)">Opening Night</a>,  <a href="https://en.wikipedia.org/wiki/The_American_Girls_Premiere">American Girl Premiere</a>, and <a href="https://www.myabandonware.com/game/spider-man-cartoon-maker-cnq">Spider-Man Cartoon Maker</a> when they were younger? I could f*ck with that shit for <i>hours</i>. My friends and I would end up crying we laughed so hard.)
 </p><br>
-
