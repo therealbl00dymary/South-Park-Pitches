@@ -30,11 +30,4 @@ E! News Exclusive/Thank you FBI - Britney Spears' horrible nightmare family clai
 <strong> Video Game Concepts: </strong>
 <p><br>
 :candy: "Suffering from Internet-Induced Brain Rot?" Drug Marketing/Designer Drug Game - America's most ethical drug company has finally discovered a cure! And they've recruited you to market the drug! Sounds lame? Fuck you! Choose the name, state (solid or liquid), pill or container shape, color, and ingestion method. After crafting the future best seller, it's commercial time! Choose your actor(s), cliché dialog, highlighted symptoms, and, of course, side effects. Share your abomination on social media and make the dreams of shareholders looking for the next OxyContin come true!
-<p>
-Symptoms of Internet-Induced Brain Atrophy Include:
-<li>Loss of independant thought</li>
-<li>Consistently agreeing with a single podcaster</li>
-<li>Monoculture</li>
-Please immediately stop taking this drug and contact your doctor if you suddenly feel an urge to listen to the Joe Rogan podcast for more than four hours.
-</p>
 </p><br>
