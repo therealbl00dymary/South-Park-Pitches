@@ -41,7 +41,7 @@ About as Bad as Smoking/"About as bad as smoking but better than risking abuse b
 "OH JESUS, THE ORCAS ARE SICK OF OUR SHIT!" - The aliens visit earth and tell the orcas to fuck with humans as a way to punish them for poisoning the ocean. (Inspiration: https://www.youtube.com/watch?v=_NMoszYIQUs)
 </br></p>
 <p><br>
-	<!-- I can't even believe they would open their mouths. Their is no fucking way they didn't know what was going on. If their is an actual hell, they will be sentenced to be Wal-mart greeters chain ganged to Harvey Weinstein. -->
+	<!-- I can't even believe they would open their mouths. Their is no fucking way they didn't know what was going on. If hell exists, they will be sentenced to be Wal-mart greeters chain ganged to Harvey Weinstein. -->
 E! News Exclusive/Thank you FBI - Britney Spears' horrible nightmare family claims she's on meth.
 </p></br>
 <strong> Video Game Concepts: </strong>
