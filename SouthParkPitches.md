@@ -9,8 +9,11 @@
 </br>
 <p><br> :rainbow: :us: Let freedom ring. :us: :rainbow: <br></p>
 
-<p><br>This content is not sponsored by: <a href="https://www.instacart.com/landing?product_id=27391341&retailer_id=42&region_id=2820468560&utm_medium=sem_shopping&utm_source=instacart_google&utm_campaign=ad_demand_shopping_rp_food_dmatier1-23_custom-geo&utm_content=accountid-8145171519_campaignid-16692365446_adgroupid-150381660169_device-c&utm_term=targetid-pla-821661324644_locationid-1027744_adtype-pla_productchannel-online_merchantid-260538446_storecode-_productid-27391341&gclid=EAIaIQobChMIqdO_xpHl_wIVVQKtBh29hQ7IEAQYASABEgIB4vD_BwE">Murray's Tangerine and Chili Olives</a></p></br>
+<p><br>This content is not sponsored by: <a href="https://www.instacart.com/products/17264814-new-glarus-beer-spotted-cow-12-fl-oz">Spotted Cow :heart: :beer: :heart: </a></p></br>
 <strong> Episode Ideas: </strong>
+<p><br>
+:confetti_ball: The Claw Game of Life (Note: Not fully fleshed out.) - On a school trip to the bowling alley, the preschoolers become embroiled in a rigged Claw game containing a very desirable item. As they try to tip the game in their favor and distract the adults enough to keep them away from the machine, Cartman, Kenny, Kyle, and Stan work on an insanely frustrating bureaucratic matter while they are bowling.
+</br></p>
 <p><br>
 Pitbull Vag - As Cartman, Kenny, Kyle, and Stan walk back home after a trip to the store, they see a pitbull's swollen vulva. Meanwhile, Dr. Mephesto accidently posions South Park's water supply with a chemical concoction that causes the town to grow tails that display emotional arousal from behind. As those who were born without penises learn to cope with this public display, those who are habituated to the phenomenon look for looser pants. All returns to normal when enough medical staff are on deck to remove the apendages.
 </br></p>
